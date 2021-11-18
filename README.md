@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ToRa3509
+- 👀 I’m interested in mtb(xc n enduoro)
+- 🌱 I’m currently learning data science
+- 💞️ I’m looking to collaborate on new company for my studying
+- 📫 How to reach me? Now i live in moscow and prepare for immigrate to canada
